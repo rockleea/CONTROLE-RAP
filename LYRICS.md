@@ -61,3 +61,6 @@ La bataille a débuté, tiensCe coup vient d'un expertà la guerre <br>
 Vaillant praticien des arts martiens <br>
 Délégué pour mettre un terme à ces horreurs <br>
 Tel est mon labeur, tu sais de qui je défends l'honneur <br>
+
+L'École du micro d'argent <br>
+L'École du micro d'argent <br>
